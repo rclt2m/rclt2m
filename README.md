@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+- 🔭 I’m currently working on acting!
+- 🍺 My home site: https://2world.top
+- 📫 How to reach me: rclt2m@gmail.com
